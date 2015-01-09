@@ -1,2 +1,2 @@
 # corsera
-Using this account for courses
+Using this account for course work
